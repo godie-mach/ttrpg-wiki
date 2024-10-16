@@ -1,0 +1,1 @@
+Large green dragon found in a Druid temple in [[Thundertree]]. It held the [[emerald staff]] that is part of the [[Phandelver Pack]]. Venom Fang wanted more than we could offer in return.

@@ -1,0 +1,1 @@
+Rockgar's uncle. Took over the bloodfang clan after gurk's death. Killed by Rockgar. 

@@ -1,0 +1,1 @@
+Patriarch of the [[Bloodfang clan]] that inhabit [[Sword Mountain]]. Father of [[Gurk Bloodfang, Bloodfang Heir]] and grandfather of [[Rockgar, Bloodfang Tribe Chieftan]].

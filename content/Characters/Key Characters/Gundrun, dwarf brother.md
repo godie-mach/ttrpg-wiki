@@ -1,0 +1,1 @@
+Quest originator. He wanrted us to find the entrance to the Echo Cave. He was initially captured INSERT STORY HERE. We eventually rescued him. 

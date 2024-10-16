@@ -1,0 +1,1 @@
+A druid and daughter of [[Hotanow tribe]] found in [[Thundertree]] 

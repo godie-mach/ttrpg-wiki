@@ -1,0 +1,1 @@
+Half human and half spider. Represented by symbol of spider with eleven legs. 

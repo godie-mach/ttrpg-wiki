@@ -1,0 +1,1 @@
+Cat-like beast with bony fur that can smell terror. Werewolves follow him. Mentioned by goblins that kidnapped us. Also known as the Leader of Hell. Likes hunt and kill. 

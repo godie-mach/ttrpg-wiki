@@ -1,0 +1,1 @@
+Sleeping Giant bar owner in [[Phandalin]]

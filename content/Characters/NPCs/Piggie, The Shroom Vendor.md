@@ -1,0 +1,1 @@
+Small gnome with donkey companion. Sells shrooms in Gnomingardens. He helped us get into the Gnomingarden.

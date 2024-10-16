@@ -1,0 +1,1 @@
+Sports a red mohawk and warpaint. Has appeared in multiple images projected by [[Pickle, the magical automaton]]. Carries a set of daggers that belog to the [[Phandelver Pack]].

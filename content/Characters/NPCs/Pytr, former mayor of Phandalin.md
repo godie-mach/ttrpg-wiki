@@ -1,0 +1,1 @@
+A feylinx with many tails. Former mayor of [[Phandalin]]. Previously held [[Talon]] (from [[Tresendar Manor]]), Talon, that is now in our possession. We also learned most of what we know of the [[Phandelver Pack]] from him.

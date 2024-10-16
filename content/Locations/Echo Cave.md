@@ -1,0 +1,1 @@
+Cave that made magic items, orc army laid waste and the entrance was closed/hidden. Key is required to enter. [[Gundrun]] knows where key and entrance are. 

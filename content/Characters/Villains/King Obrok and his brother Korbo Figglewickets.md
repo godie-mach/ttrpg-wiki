@@ -1,0 +1,2 @@
+Gnomingarden royalty and very distant relatives of Clank? A family that farmed mushrooms (specifically dire mushroom and sugarshrooms) that tastes like meat and candy, respectively. 
+They were sick and not themselves and so [[Maestro Grobro Fibblestipp]] and [[High Engineer Dadah Dabbledov]] were ruling in their stead. Dadah is now dead.

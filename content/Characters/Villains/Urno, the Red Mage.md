@@ -1,0 +1,1 @@
+He is the original leader of thieves (GlassStaff). Had the same ring as Seshat. Part of Lord's Alliance? Reported to [[Vyerlyth, agent of The Black Spider]] and sent Pytr’s arm when he was holding Pytr prisoner. 

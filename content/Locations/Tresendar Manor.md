@@ -1,0 +1,1 @@
+Large mansion in [[Phandalin]], owned by [[Aldith Tresendar, aka The Black Hawk]]. The mansion contains crypts and mysterious passages. It also has an underground passage that leads out of [[Phandalin]].

@@ -1,0 +1,1 @@
+Has a cursed mummified face under mask. Must fulfill pilgrimage to Lovitar to come back. Needs bodies (alive) to take over and will give a bounty for them.

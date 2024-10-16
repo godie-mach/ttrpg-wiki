@@ -1,0 +1,1 @@
+Lived on peak of [[Sword Mountain]]. Killed [[Zog Bloodfang, Tribe King]] and left the [[Bloodfang clan]] without a proper chief. Xerov was killed by [[Rockgar, Bloodfang Tribe Chieftan]] to regain chief status among the [[Bloodfang clan]].

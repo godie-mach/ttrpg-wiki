@@ -1,0 +1,1 @@
+A gnomish boy with a leather bound book that is part of [[Phandelver Pack]]. Oodl ("brother) in Gnomish) of Toggle. Black sheep of the family. Dabbled into dark arts and seen in a vision of [[Pickle, the magical automaton]] and is an old friend of Clank's. 

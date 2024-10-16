@@ -1,0 +1,1 @@
+A purple Drow. We have spoken to her via dream and learned of her through Urno’s journal. She spoke of her ring. Gobro and King Groll also works with Vyerlyth. 
