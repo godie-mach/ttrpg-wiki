@@ -1,4 +1,3 @@
-
 # The Lost Mine of Phandelver
 
 [[The Adventurers]] Our beloved team of misfits
@@ -14,7 +13,9 @@
 #### Side Quests
 Quests & Questions
 
-Need a quick recap? Most recent [[Previously On...]]
+> [!info] Need a quick recap? Here's our most recent "[[Previously On...]]"
 
-***Previous Sessions***
-- 
+***Previous Session Logs***
+- Placeholder
+- Placeholder
+
