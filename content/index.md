@@ -1,9 +1,13 @@
 
-The Lost Mine of Phandelver
+# The Lost Mine of Phandelver
+
 [[The Adventurers]] Our beloved team of misfits
+
 [[Characters]]
+
 [[Locations]]
 
+## Questlog
 #### Main Quest
 [[Main Quest Lore]] and [[Squad Inventory]]
 
@@ -11,5 +15,6 @@ The Lost Mine of Phandelver
 Quests & Questions
 
 Need a quick recap? Most recent [[Previously On...]]
+
 ***Previous Sessions***
 - 
