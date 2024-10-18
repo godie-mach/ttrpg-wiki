@@ -1,0 +1,1 @@
+Held 3 samurai swords and a flute. Hangs with [[Vyerlyth, agent of The Black Spider]] and is searching for the arms that make up [[Phandelver Pack]]. Has oath to fulfill and reason to be with Black Spider. However, he gave us the [[emerald staff]], after he stole it from Venom Fang.
