@@ -1,1 +1,0 @@
-Main pioneer and mother of Pickle. Woodl ("sister" in Gnomish) of Boggle. Owns the hammer that is part of [[Phandelver Pack]].

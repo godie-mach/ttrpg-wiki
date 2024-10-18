@@ -1,1 +1,0 @@
-A little wooden automaton. Captured by [[Vyerlyth, agent of The Black Spider]] to extract knowledge about the [[Echo Cave]], but was instructed by [[Gundrun]] to not speak to anyone about it. 
